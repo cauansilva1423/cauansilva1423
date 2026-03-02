@@ -1,4 +1,4 @@
-# 💫 About Me:
+#  About Me:
 …<br>Olá! Eu sou o Cauan silva 1423<br>🔭 Eu estou estudando programação<br>📫 Como entrar em contato comigo: cauansilva142306@gmail.com<br>😄 Pronomes: Ele/Dele<br><br><br> 
 
 
